@@ -1,0 +1,1 @@
+![Image of Maria Tibau Aynes](https://media-exp1.licdn.com/dms/image/C5603AQGE0_H8e_th2g/profile-displayphoto-shrink_200_200/0/1517434602280?e=1612396800&v=beta&t=HBpoDg0mw9kPmd81uuuazkS51i47DOrH1VRaCR6rXX8)
