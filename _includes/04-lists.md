@@ -1,4 +1,3 @@
-
 - I really :heart: dancing! :dancer:
 - I practice at least one meditation daily :pray:
 - Charges me a lot to spend time on the nature :deciduous_tree: and on my ecological garden :seedling:  
